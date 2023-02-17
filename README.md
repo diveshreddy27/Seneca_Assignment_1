@@ -1,0 +1,2 @@
+# Seneca_Assignments
+![image](https://user-images.githubusercontent.com/103050585/219561142-e95c333f-6d6a-41c2-ba05-a33fdd870402.png)
